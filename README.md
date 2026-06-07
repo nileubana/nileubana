@@ -10,3 +10,8 @@ dnc, int free, c+h sometimes.
 
 example:
 <img width="1835" height="2048" alt="HFtgfdWWIAARCl-" src="https://github.com/user-attachments/assets/678b9731-7db3-4bf7-94d8-5e998c4b98d0" />
+
+
+PANSEXUAL. TRANS. GENDERFLUID. || DEPRESSION. ADHD. BPD.
+
+buy me zoloft and estrogen pls.

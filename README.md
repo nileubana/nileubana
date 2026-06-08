@@ -1,17 +1,6 @@
 # hello.
 
-comms closed: artist.
-links: nileubana (discord), https://x.com/_koney/status/2061454738982367654?s=20 (X)
+I'm Amel Nileubana, also known as Koney. Im not very active and only post my series here. Im also an artist, you can find me on X (@_koney)
 
-interests:
-Project Moonl, Homestuck, Deadlock, Ultrakill, Rain World, Casulties Unknown, corru.observer, Terraria and a lot more autistic games.
+If you want to inquire: Discord (nileubana)
 
-dnc, int free, c+h sometimes.
-
-example:
-<img width="1835" height="2048" alt="HFtgfdWWIAARCl-" src="https://github.com/user-attachments/assets/678b9731-7db3-4bf7-94d8-5e998c4b98d0" />
-
-
-PANSEXUAL. TRANS. GENDERFLUID. || DEPRESSION. ADHD. BPD.
-
-buy me zoloft and estrogen pls.

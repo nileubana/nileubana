@@ -14,6 +14,14 @@ I'm Amel Nileubana, also known as Koney. Im 17 and an artist. **Please refer to 
 my twt: https://x.com/_koney
 If you want to inquire: Discord (nileubana)
 
+
+
+
+
+
+
+## autism zone
+
 Current Hyperfix: Mindustry
 
 I like: ENA, Rain World (esp. Watcher), Homestuck, Tyler the Creator, Ultrakill, Mindustry, Deadline (Roblox), HBG (Roblox), Allusions 1&2 (Roblox), Touhou, Girls Last Tour, Cyberpunk2077, Cyberpunk: Edgerunners, Geometry Dash, Arknights, Girls' Frontlines, Project Moon, Terraria: Calamity Infernum, Starbound GIC, Pony Town.

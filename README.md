@@ -27,10 +27,3 @@ Current Hyperfix: Mindustry
 I like: ENA, Rain World (esp. Watcher), Homestuck, Tyler the Creator, Ultrakill, Mindustry, Deadline (Roblox), HBG (Roblox), Allusions 1&2 (Roblox), Touhou, Girls Last Tour, Cyberpunk2077, Cyberpunk: Edgerunners, Geometry Dash, Arknights, Girls' Frontlines, Project Moon, Terraria: Calamity Infernum, Starbound GIC, Pony Town, corru.observer.
 
 DOESN'T NOT INCLUDE: Girls' Frontline: Exilium, Arknights: Endfield.
-
-
-
-## meet me at ------
-<img width="3507" height="2480" alt="1000073477" src="https://github.com/user-attachments/assets/adbfb2fb-2288-4675-9225-1893f6d0e3a0" />
-K&A
-https://github.com/nileubana/K-A

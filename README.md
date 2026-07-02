@@ -35,6 +35,6 @@ DOESN'T NOT INCLUDE: Girls' Frontline: Exilium, Arknights: Endfield.
 
 Past interests: Zenless Zone Zero, Chaos Zero Nightmare, SEKIRO, Phantom Forces (Roblox), Bad Business (Roblox), MHA, Demon Slayer, Satisfactory, Factorio, Noita, The Witcher,
 
-Tried & didn't like: Blue Archive, Genshin Impact, Honkai: Star Rail, Arknights: Endfield, Girls' Frontline: Endfield, TADC, Helluva Boss, Hazbin Hotel, Umamusume, 
+Tried & didn't like: Blue Archive, Genshin Impact, Honkai: Star Rail, Arknights: Endfield, Girls' Frontline: Exilium, TADC, Helluva Boss, Hazbin Hotel, Umamusume, 
 
 To play/retry: Silksong, Signalis 

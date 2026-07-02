@@ -29,6 +29,12 @@ If you want to inquire: Discord (nileubana)
 
 Current Hyperfix: nun
 
-I like: ENA, Rain World (esp. Watcher), Homestuck, Tyler the Creator, Ultrakill, Mindustry, Deadline (Roblox), HBG (Roblox), Allusions 1&2 (Roblox), Touhou, Girls Last Tour, Cyberpunk2077, Cyberpunk: Edgerunners, Geometry Dash, Arknights, Girls' Frontlines, Project Moon, Terraria: Calamity Infernum, Starbound GIC, Pony Town, corru.observer, Signalis.
+I like: ENA, Rain World (esp. Watcher), Homestuck, Tyler the Creator, Ultrakill, Mindustry, Deadline (Roblox), HBG (Roblox), Allusions 1&2 (Roblox), Touhou, Girls Last Tour, Cyberpunk2077, Cyberpunk: Edgerunners, Geometry Dash, Arknights, Girls' Frontlines, Project Moon, Terraria: Calamity Infernum, Starbound GIC, Pony Town, corru.observer, Warframe, Y.O.M.I. Hustle, beta decay, Metro, Digital Combat Simulator (DCS)
 
 DOESN'T NOT INCLUDE: Girls' Frontline: Exilium, Arknights: Endfield.
+
+Past interests: Zenless Zone Zero, Chaos Zero Nightmare, SEKIRO, Phantom Forces (Roblox), Bad Business (Roblox), MHA, Demon Slayer, Satisfactory, Factorio, Noita, The Witcher,
+
+Tried & didn't like: Blue Archive, Genshin Impact, Honkai: Star Rail, Arknights: Endfield, Girls' Frontline: Endfield, TADC, Helluva Boss, Hazbin Hotel, Umamusume, 
+
+To play/retry: Silksong, Signalis 

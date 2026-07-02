@@ -24,8 +24,8 @@ If you want to inquire: Discord (nileubana)
 
 ## media zone
 
-Current Hyperfix: Mindustry
+Current Hyperfix: nun
 
-I like: ENA, Rain World (esp. Watcher), Homestuck, Tyler the Creator, Ultrakill, Mindustry, Deadline (Roblox), HBG (Roblox), Allusions 1&2 (Roblox), Touhou, Girls Last Tour, Cyberpunk2077, Cyberpunk: Edgerunners, Geometry Dash, Arknights, Girls' Frontlines, Project Moon, Terraria: Calamity Infernum, Starbound GIC, Pony Town, corru.observer.
+I like: ENA, Rain World (esp. Watcher), Homestuck, Tyler the Creator, Ultrakill, Mindustry, Deadline (Roblox), HBG (Roblox), Allusions 1&2 (Roblox), Touhou, Girls Last Tour, Cyberpunk2077, Cyberpunk: Edgerunners, Geometry Dash, Arknights, Girls' Frontlines, Project Moon, Terraria: Calamity Infernum, Starbound GIC, Pony Town, corru.observer, Signalis.
 
 DOESN'T NOT INCLUDE: Girls' Frontline: Exilium, Arknights: Endfield.

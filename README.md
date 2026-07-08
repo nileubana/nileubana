@@ -1,4 +1,4 @@
-https://github.com/nileubana/Repentance
+/Repentance
 
 # hello.
 

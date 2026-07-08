@@ -1,5 +1,10 @@
 /Repentance
 
+### COMMISIONS OPEN!!! (2/10)
+1. Stand-by (PAID)
+2. Queue (NOT PAID)
+3. ...
+
 # hello.
 
 I'm Amel Nileubana, also known as Koney. Im 17 and an artist. **Please refer to me as SHE/THEY** |*trans-asexual-aromantic*|.

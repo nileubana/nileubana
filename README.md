@@ -1,7 +1,7 @@
 /Repentance
 
 ### COMMISIONS OPEN!!! (2/10)
-1. Stand-by (PAID)
+1. In process (PAID)
 2. Queue (NOT PAID)
 3. ...
 

@@ -1,9 +1,6 @@
 /Repentance
 
-### COMMISIONS OPEN!!! (2/10)
-1. FIN (PAID)
-2. Queue (NOT PAID)
-3. ...
+### COMMISIONS OPEN!!! (5/10)
 
 # hello.
 

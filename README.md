@@ -16,6 +16,8 @@ I'm Amel Nileubana, also known as Koney. Im 17 and an artist. **Please refer to 
 <img width="2000" height="1395" alt="1000069745" src="https://github.com/user-attachments/assets/26077d82-233a-4cf4-a286-ef846f1a5102" />
 <img width="2997" height="2247" alt="1000073596" src="https://github.com/user-attachments/assets/5c3f04f5-4a05-44fd-adc6-db191e4a3e3d" />
 <img width="4096" height="3072" alt="1000072452" src="https://github.com/user-attachments/assets/4757339d-62f0-411a-af39-94735e3888b5" />
+<img width="2390" height="2824" alt="1000080234" src="https://github.com/user-attachments/assets/d56fee32-1ca0-4bec-a7e7-6db5cdc3d85f" />
+
 
 
 my twt: https://x.com/_koney
